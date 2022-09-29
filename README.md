@@ -1,4 +1,4 @@
 # goodmovies
-<h1> heading 1 </h1>
-<p> text </p>
-theme:merlot
+remote_theme: pages-themes/merlot@v0.2.0
+
+
