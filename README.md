@@ -16,7 +16,7 @@ some good movies to watch on the weekend
 
 ## Spirited Away (2001)
 
-![spawheader](https://dw9to29mmj727.cloudfront.net/promo/2016/5539-Ghibli_SeriesHeaders_Spirited_2000x800.jpg)
+![spawheader](https://i.pinimg.com/564x/9f/54/71/9f5471c2fb321b43dffd7eeb82577ff7.jpg)
 ![pic1](https://i.pinimg.com/564x/2d/27/09/2d27099acff6c96d44243d6a9b14f89c.jpg)
 ![gif1](https://howspiritedawaychangedtheworldhome.files.wordpress.com/2018/12/tumblr_oynap5jh3o1ui7oe1o1_500.gif)
 
