@@ -2,7 +2,7 @@
 
 some good movies to watch over the weekend
 
-## Dead Poet's Society (1989)
+## Dead Poets Society (1989)
 ![dps header](https://64.media.tumblr.com/a9938db871cf993e992bd1915783be72/5c8352854b61efb6-51/s1280x1920/5762ce05ad737e8fab7eb0f4dffb53bd4f238491.jpg)
 ![pic1](https://i.pinimg.com/564x/d8/3f/f7/d83ff7e2b92fa0cdfa6b2672c04cc678.jpg)
 ![gif1](https://64.media.tumblr.com/c756cc753fc873f0300f4c3c43db6b24/tumblr_ptj1n24pmQ1ua45zn_400.gif)
